@@ -1,0 +1,1 @@
+Hiya folks! This is the store.
